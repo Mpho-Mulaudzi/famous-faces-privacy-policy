@@ -2,7 +2,7 @@
 
 _Last updated: October 2025_
 
-Thank you for using **Smart Minimal Calculator**.  
+Thank you for using **Famous Faces**.  
 This Privacy Policy explains how the app handles information provided or collected while you use it.
 
 ---
